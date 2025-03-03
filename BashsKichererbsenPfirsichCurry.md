@@ -1,4 +1,4 @@
-### **Bashs veganes Kichererbsen-Aprikosen-Curry** 🌱🍛✨  
+### **Bashs veganes Kichererbsen-Pfirsich-Curry** 🌱🍛✨  
 *"Manchmal braucht man einfach eine warme Schüssel voller Soulfood – und wenn es noch süß, würzig und cremig ist, umso besser."* – Bash  
 
 ---
