@@ -44,7 +44,7 @@
 6. Die Pfirsichstücke und das Mandelmus einrühren.  
 
 #### 3️⃣ **Perfekte Konsistenz & Geschmack:**  
-7. Auf mittlerer Hitze 15–20 Minuten köcheln lassen, bis die Aprikosen weich und das Curry schön cremig ist. Falls es zu dick wird, etwas Gemüsebrühe einrühren.  
+7. Auf mittlerer Hitze 15–20 Minuten köcheln lassen, bis das Curry schön cremig ist. Falls es zu dick wird, etwas Gemüsebrühe einrühren.  
 8. Mit Salz und Ahornsirup abschmecken, um die perfekte Balance aus süß, würzig und herzhaft zu finden.  
 
 #### 4️⃣ **Finish & Servieren:**  
