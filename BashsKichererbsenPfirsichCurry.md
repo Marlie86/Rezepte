@@ -20,7 +20,7 @@
 #### **Für die Sauce:**  
 - 1 Dose stückige Tomaten (ca. 400 g)  
 - 250 ml Kokosmilch  
-- 6–8 getrocknete Aprikosen, in kleine Stücke geschnitten  
+- 1 Dose Pfirsiche 
 - 1 EL Mandelmus oder Erdnussbutter (für extra Cremigkeit)  
 - 1 TL Ahornsirup oder Agavendicksaft (zum Abrunden)  
 - 100 ml Gemüsebrühe (falls nötig, um die Konsistenz anzupassen)  
@@ -41,7 +41,7 @@
 #### 2️⃣ **Das Herz des Currys:**  
 4. Die Kichererbsen abspülen und mit in den Topf geben, gut mit den Gewürzen vermengen.  
 5. Die stückigen Tomaten und die Kokosmilch hinzufügen und einmal aufkochen lassen.  
-6. Die Aprikosenstücke und das Mandelmus einrühren.  
+6. Die Pfirsichstücke und das Mandelmus einrühren.  
 
 #### 3️⃣ **Perfekte Konsistenz & Geschmack:**  
 7. Auf mittlerer Hitze 15–20 Minuten köcheln lassen, bis die Aprikosen weich und das Curry schön cremig ist. Falls es zu dick wird, etwas Gemüsebrühe einrühren.  
