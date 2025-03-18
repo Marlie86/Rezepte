@@ -1,6 +1,6 @@
-### **Marlies Vanille Schlagcreme mit würzigem Bratapfel** ###
+### **Marlies Vanille Schlagcreme mit würzigem Bratapfel
 
-### ** Würzige Bratapfel Stücke ** ###
+### ** Würzige Bratapfel Stücke 
 - 2 Äpfel (geschält und gehackt)
 - kleine Handvoll Cashewkerne gehackt
 - Ahornsirup
