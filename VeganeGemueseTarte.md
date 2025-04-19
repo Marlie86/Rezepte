@@ -14,7 +14,8 @@
 - 2 Karotten  
 - 1 Paprika  
 - 1–2 Tomaten (nicht zu wässrig)  
-- 2–3 Blätter Pak Choi (Stiele andünsten, Blätter roh lassen)  
+- 2–3 Blätter Pak Choi (Stiele andünsten, Blätter roh lassen)
+- wenig Ahornsirup
 
 ##### **Für den veganen Guss (die Seele der Tarte):**
 - 200 g Seidentofu oder fester Tofu (dann + 2 EL Wasser)
@@ -46,7 +47,8 @@
 3. **Gemüse vorbereiten:**  
    - Zucchini, Karotten und Paprika in feine Streifen oder Scheiben schneiden.  
    - Pak Choi-Stiele kurz in Öl andünsten, dann alle Gemüse mit Salz, Pfeffer und etwas Öl leicht anrösten.  
-   - Tomaten würfeln, zum Schluss unterheben.  
+   - Tomaten würfeln, zum Schluss unterheben.
+   - Ahornsirup dazu geben und gut durch rühren damit es sich gleichmäßig verteilt. 
 
 4. **Guss mixen:**  
    - Seidentofu, pflanzliche Sahne, Hefeflocken, Senf und Gewürze zu einer glatten Creme pürieren.  
