@@ -22,17 +22,19 @@
 
 #### 🌙 Füllung:
 
-* 150 g Heidelbeeren (TK oder frisch)
-* 1 kleine reife Banane
-* 150 g Seidentofu oder veganer Naturjoghurt
+* ~30 g Heidelbeeren (TK oder frisch)
+* 3EL Zucker
+* 200 g Seidentofu oder veganer Naturjoghurt
 * 1–1,5 TL Maisstärke oder Pfeilwurzelstärke
-* 1/2 TL Vanille
+* 2 1/2 TL Vanilleextrakt
+* 1 Pck Vanillezucker
 * 1 Prise Zimt
+* 2-3 EL Rosenwasser
 * Optional: 1 TL Zitronensaft
 
 **Zubereitung:**
 
-1. Beeren, Banane, Vanille und Zimt cremig pürieren.
+1. Beeren, Seidentofu, Vanilleextrakt, Vanillezucker, Rosenwasser, Zucker, Zitronensaft und Zimt cremig pürieren.
 2. Stärke mit 2 EL kaltem Pflanzendrink glatt rühren, unter die Masse mischen.
 3. In einem kleinen Topf bei mittlerer Hitze vorsichtig erwärmen und rühren, bis sie leicht andickt.
 4. Vom Herd nehmen, ein paar Minuten abkühlen lassen und dann in die Tarte füllen.
