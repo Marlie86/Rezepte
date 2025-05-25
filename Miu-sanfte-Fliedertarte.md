@@ -24,7 +24,7 @@
 
 * ~30 g Heidelbeeren (TK oder frisch)
 * 3EL Zucker
-* 200 g Seidentofu oder veganer Naturjoghurt
+* 200 g Seidentofu oder veganer Naturjoghurt (Menge an die höhe des Randes der Form anpassen +-)
 * 1–1,5 TL Maisstärke oder Pfeilwurzelstärke
 * 2 1/2 TL Vanilleextrakt
 * 1 Pck Vanillezucker
